@@ -228,4 +228,4 @@ Open General is a fully free version of the game, providing players with all fea
 Don't miss out on this thrilling military strategy experience! [Download Open General now and start your adventure!](https://www.softyne.com/open-general)
 
 ---
-**Last updated:** 2026-11-01 15:36:35 UTC
+**Last updated:** 2026-11-01 19:58:52 UTC
